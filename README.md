@@ -2,7 +2,8 @@
 - 👀 I’m interested in ias
 - 🌱 I’m currently learning sobre
 - cibernética 
-- 💞️ I’m looking to collaborate on ideas
+- 💞️ I’m looking to collaborate on minhas
+- pesquisas 
 - 📫 How to reach me 
 - 😄 Pronouns: 
 - ⚡ Fun fact: 
